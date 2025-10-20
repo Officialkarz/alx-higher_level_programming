@@ -1,1 +1,1 @@
-DOING HARD things
+Doing things
